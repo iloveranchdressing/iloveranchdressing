@@ -19,7 +19,7 @@
 </div>
 
 <div align="center">
-  <img src="https://komarev.com/ghpvc/?username=iloveranchdressing&label=idiots&color=B0A06D&style=for-the-badge" />
+  <img src="https://komarev.com/ghpvc/?username=iloveranchdressing&color=f5e7b8&label=idiots&color=f5e7b8&style=plastic&labelColor=C05C0E" />
 </div>
 
 
