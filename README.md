@@ -25,4 +25,4 @@
 <div align="center">
  anyways see my phighting oc isnt she adorable
 </div>
-<img width="1500" height="2000" alt="Untitled78_20251216190704" src="https://github.com/user-attachments/assets/d3d701d7-fb14-467b-b1dd-140d7b45e5c4" />
+<img width="5000" height="1500" alt="Untitled78_20251216190704" src="https://github.com/user-attachments/assets/d3d701d7-fb14-467b-b1dd-140d7b45e5c4" />
