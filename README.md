@@ -15,8 +15,6 @@
   <a href="https://youraveragejoe.atabook.org/">ata</a>
   &nbsp;&nbsp;|&nbsp;&nbsp;
   <a href="https://colormytree.me/2025/01KBV7JXK31664TTXAVBJBZTGT">⟡ tree</a>
-  &nbsp;&nbsp;|&nbsp;&nbsp;
-  <a href="https://infamousranchliker.straw.page/">straw</a>
 
 </div>
 
