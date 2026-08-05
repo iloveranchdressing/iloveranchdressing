@@ -34,7 +34,7 @@ Im pretty fragile and will overthink a lot, I suggest you should IWCARE if possi
 </div>
 <p align="justify">      
 
-**DNI Criteria**, which means problematic -phobias, -phillia, antis, -isms, proshippers, darkshippers, people supporting the RIGHT WING in politics, and peoples who are just jerks. Aside from DNI criteria, DNI people who have over-the-top horny humor (i am okay with occasional sexual humor, im old enough), people who have used slurs for offensive reasons and not for reclaiming reasons, and people who support AI. 
+**DNI Criteria**, which means problematic -phobias, -phillia, antis, -isms, proshippers, darkshippers, people supporting the RIGHT WING in politics, and peoples who are just jerks. Aside from DNI criteria, DNI people who have over-the-top horny humor (i am okay with occasional sexual humor, im old enough), people who have used slurs for offensive reasons and not for reclaiming reasons, and people who support AI "art" being real art. 
 
 **IWEC/IWC**: You make degrading fat/autism/etc. jokes. People who states "DNI/IWEC/IWC" to Dandys World or any of my other fandoms. And people from problematic fandoms
 
