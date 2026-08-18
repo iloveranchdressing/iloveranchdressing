@@ -30,12 +30,4 @@
 <br clear="left"/>
 
 <img width="1200" height="50" alt="SWAG2" src="https://files.catbox.moe/9099gw.gif" />
-⠀
-⠀
-⠀
-
-
-ssomething stupid i made lol ⬇️
-<img width="2000" height="1000" alt="Untitled703_20260818172110" src="https://github.com/user-attachments/assets/599ac553-91be-4d95-8702-4874bd293e1d" />
-
 </div>
