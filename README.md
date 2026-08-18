@@ -10,7 +10,7 @@
 
 <strong style="color:#000000;">✸ "NAMES AUDREY!" </strong>
 
-<span style="color:#000000;"> ↪ ⦅ 15y.old ‼️ . demigirl + bi ⦆ </span>
+<span style="color:#000000;"> ↪ ⦅ 15y.old ‼️ . demigirl/androgyne + bi ⦆ </span>
 
 <img alt=""  src="https://img.shields.io/github/followers/yaoi-slop?color=00A6FF&style=plastic&label=sk8rs"/> <img src="https://i.ibb.co/bWDHhdt/IMG-7071.gif" width="20" /> <img src="https://komarev.com/ghpvc/?username=iloveranchdressing&color=FF0000&label=ppl!&color=FF0000&style=plastic&labelColor=FF0000" />
 
