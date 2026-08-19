@@ -1,4 +1,4 @@
-THIS MAY LOOK HELLA WEIRD ON MOBILE. SORRY MAN
+THIS WILL LOOK HELLA WEIRD ON MOBILE. SORRY MAN
 <div align="center">
 <img width="1200" height="50" alt="SWAG2" src="https://files.catbox.moe/9099gw.gif" />
 
