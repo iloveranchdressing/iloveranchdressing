@@ -8,7 +8,7 @@
 <img width="300" height="150" alt="yaaa" src="https://github.com/user-attachments/assets/88d13184-a1d0-41fa-a0ce-94afd322dcee" />
 
 
-<strong style="color:#000000;">✸ "NAMES AUDREY!" </strong>
+## <strong style="color:#000000;"><img width="30" height="30" alt="cb1fd9e7389e3e64fbdcd5c6b8cfaa50-removebg-preview" src="https://github.com/user-attachments/assets/8524f94c-4571-4206-be87-0cb508895dd0" /> "THE NAMES AUDREY!" </strong>
 
 <span style="color:#000000;"> ↪ ⦅ 15y.old ‼️ . demigirl/androgyne + bi ⦆ </span>
 
