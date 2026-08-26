@@ -20,7 +20,7 @@ THIS WILL LOOK HELLA WEIRD ON MOBILE. SORRY MAN
 
 -> art on the left is made by me!!
 
-<img width="250" height="230" alt="little thing" src="https://github.com/user-attachments/assets/7925d352-5853-40e0-a15f-f12291ab5221" />
+<img width="250" height="230" alt="little thing" src="https://github.com/user-attachments/assets/5712da75-5785-4ccf-829b-d260f49ec442" />
 
 
 
